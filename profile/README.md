@@ -2,6 +2,8 @@
 
 **Sprinter Online** is not just another running game — it’s a **blazing-fast, adrenaline-pumping runner** that will push your reflexes to the limit! Whether you're a fan of **arcade games**, **sports competitions**, or **speed-based challenges**, this **legendary sprinting simulator** will keep you on your toes from start to finish.
 
+## <a href="https://1kb.link/vXmUfI">👉 Click To Play Sprinter Unblocked Games NOW 👈</a>
+
 ### 🏃 What is Sprinter Online?
 
 **Sprinter Online** is a classic **2D running game** where you compete against AI athletes in a race for glory. Your goal? **Tap the arrow keys as fast as possible** to sprint past your opponents and become the **ultimate track champion**. With each round, your competitors get faster, turning every race into a high-stakes, **turbo-charged test of speed and skill**.
